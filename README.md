@@ -2,6 +2,6 @@
 
 - no arc no mark
 - one fraction on the left one fraction on the right
-- clarissa wake up
+- future leaders
 - take down notes!
 - 
